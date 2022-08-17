@@ -4,7 +4,7 @@
 
 <h1 align="center"> [MR.AKING]</h1>
 
-<h2 align="center">  FB RABDOM CLONING TOOL FREE</h2>
+<h2 align="center">  FB FILE CLONING PAID TOOL</h2>
 
 
 ## <b>installation</b>
